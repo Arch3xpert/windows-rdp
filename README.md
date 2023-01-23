@@ -1,3 +1,6 @@
-# Remote2.0
+# Remote2.0 Windows Rdp 
 
-Created by @KytpicBit
+Telegram ID - Archxpert
+Credit - AkhiL ( KrypticBit )
+
+Themkssssssss
